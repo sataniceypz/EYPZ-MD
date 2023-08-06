@@ -37,7 +37,7 @@ ALL COMMANDS ARE ENCRIPTED. DON'T TRY DECRIPT. BOT BY Akshay
 
 |----|----|----|----|
 
-| [Kalidu Gaweshana](https://github.com/sataniceypz) | 
+| [Akshay](https://github.com/sataniceypz) | 
 
 |  𝗠𝗔𝗜𝗡 𝗗𝗘𝗩𝗘𝗟𝗢𝗣𝗘𝗥 | 𝗕𝗜𝗚 𝗦𝗨𝗣𝗣𝗢𝗥𝗧 |
 
